@@ -1,1 +1,1 @@
-### Duolingo
+### Duolingo English Test
